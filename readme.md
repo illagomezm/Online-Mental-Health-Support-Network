@@ -1,0 +1,1 @@
+The Online Mental Health Support Network provides a safe and supportive online community for individuals struggling with mental health issues, offering peer support, professional counseling, and self-care resources.
